@@ -29,7 +29,7 @@
 
 ## КОнтактная информация
 
-- [Phone](8 950 385 35 02)
+- Телефон: 8-950-385-35-02
 - [Telegram](@vsevolodandreewitch)
 - [Email](v.bryansckiy@yandex.ru)
 
